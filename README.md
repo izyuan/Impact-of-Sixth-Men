@@ -49,6 +49,5 @@ Note: I will be refering to the top 2 bench players from each team as sixth men.
 
 ## Feedback
 Feel free to reach out at ieyuan1608@gmail.com or connect with me on LinkedIn for any feedback or collaboration opportunities.
-Here's my linkedin: https://www.linkedin.com/in/isaac-yuan-723b422a6/
 
 
